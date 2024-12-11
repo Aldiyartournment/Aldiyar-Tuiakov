@@ -1,1 +1,0 @@
-# Aldiyar-Tuiakov
